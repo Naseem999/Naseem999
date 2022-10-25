@@ -1,5 +1,5 @@
-# 💫 About Me:
-Tcer!✨<br>Learning Full Stack Java🔥 Developement🚀🚀🚀<br>Pure Geek 🤓<br>Code Lover 💻🖳 🖳 <br><br>
+# 👽 About Me:
+Tcer!✨<br>Learning Full Stack Java🔥 Developement🚀🚀🚀<br>Pure Geek 🤓<br>Code Lover 💻👨‍💻 <br><br>
 
 
 ## 🌐 Socials:

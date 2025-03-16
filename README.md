@@ -1,5 +1,5 @@
 # 🧐 About Me:
-<br>Learning Full Stack Java🔥 Developement🚀🚀🚀<br>Pure Geek 🤓<br>Code Lover 💻👨‍💻 <br><br>
+<br>Full Stack Java🔥 Developer 🚀🚀🚀<br>Pure Geek 🤓<br>Code Lover 💻👨‍💻 <br><br>
 
 
 ## 🌐 Socials:
